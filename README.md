@@ -1,1 +1,1 @@
-# blk-maker
+follow the instrution of mind
